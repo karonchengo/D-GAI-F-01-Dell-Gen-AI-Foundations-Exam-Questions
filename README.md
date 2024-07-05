@@ -1,0 +1,1 @@
+# D-GAI-F-01-Dell-Gen-AI-Foundations-Exam-Questions
